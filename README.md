@@ -1,1 +1,4 @@
-
+Satsangatve* Nissangatvam
+Nissangatve Nirmohatvam
+Nirmoatvam Nishchalattvam
+Nishcalattvam Jiivanmuktih
